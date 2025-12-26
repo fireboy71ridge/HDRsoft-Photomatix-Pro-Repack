@@ -1,0 +1,1 @@
+# HDRsoft-Photomatix-Pro-Repack
